@@ -8,3 +8,5 @@ Getting serious with finishing course to get better skillsets in search of new j
 
 Uploading everything from PC now. 
 Updated firstpage.html
+
+Getting back into it. Updating more often now and redeveloping my skills and personal portfolio page. 
